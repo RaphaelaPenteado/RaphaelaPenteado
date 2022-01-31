@@ -1,0 +1,4 @@
+- 👋 @RaphaelaPenteado
+- 👀 Amo técnologia 
+- 🌱 Estudo engenharia da computação 
+- 💞️ Espero construir um mundo melhor 
